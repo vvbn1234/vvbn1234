@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @vvbn1234
+- 👀 I’m interested in developing a newly constructed script and language
+- 🌱 I’m currently learning the nature of nature
+- 💞️ I’m looking to collaborate on Avash script and language development
+- 📫 How to reach me at markham.rod@gmail.com
